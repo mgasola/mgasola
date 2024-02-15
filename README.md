@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @mgasola
 - 👀 I’m interested in my girlfriend
 - 🌱 I’m currently learning systems development
-- 💞️ I’m looking to collaborate on systems proejcts
+- 💞️ I’m looking to collaborate on systems projects
 - 📫 How to reach me: gasolamateus@gmail.com// ig:@mateusgasola
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: huge fan of coritiba from paraná and manchester united from england
