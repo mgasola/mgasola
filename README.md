@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning systems development
 - 💞️ I’m looking to collaborate on systems proejcts
 - 📫 How to reach me: gasolamateus@gmail.com// ig:@mateusgasola
-- 😄 Pronouns: he
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: huge fan of coritiba from paraná and manchester united from england
 
 <!---
